@@ -15,6 +15,7 @@
 * Fish sauce
 * Rice wine vinegar
 * Sweet & spicy sauce (like Thai pepper sauce)
+* Sriracha
 
 1. Get large pan or wok hot and then add the veggies all at once – including garlic and ginger, but minus broccoli, oranges and zoodles.
 2. Keep adding the liquid shit until it's delicious. Keep the veggies moving the whole time.
